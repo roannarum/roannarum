@@ -14,6 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-🔭 I’m currently studying in Unjani YK univercity
-📫 How to reach me: dewiarumsari38@gmail.com
+![Purple Illustrated Digital Tech Class Google Classroom Header (1)](https://user-images.githubusercontent.com/80440600/152623375-9fa828d2-31d0-48f2-8782-6412d8f99ca7.png)
+🔭 I’m currently studying in Unjani YK univercity<br>
+📫 How to reach me: dewiarumsari38@gmail.com<br>
 let's connect with me in : linkedin.com/in/dewi-arumsari
