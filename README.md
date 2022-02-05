@@ -14,4 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-Contact me : linkedin.com/in/dewi-arumsari
+🔭 I’m currently studying in Unjani YK univercity
+📫 How to reach me: dewiarumsari38@gmail.com
+let's connect with me in : linkedin.com/in/dewi-arumsari
